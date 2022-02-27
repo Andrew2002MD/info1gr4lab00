@@ -1,0 +1,1 @@
+Am aduagat un rand
